@@ -1,0 +1,1 @@
+Frederic Mrozinski | portfolio | skills 
